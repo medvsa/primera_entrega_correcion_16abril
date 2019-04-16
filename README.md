@@ -1,1 +1,1 @@
-# primera_entrega_correcion_16abril
+# primera_entrega_seminario_I
